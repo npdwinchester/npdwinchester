@@ -1,1 +1,1 @@
-![](https://cdn271.picsart.com/9dea8fbd-6e14-44e3-826c-ab78f125b59c/447722144031201.png?to=crop&type=webp&r=1008x1163&q=85)
+![](https://cdn270.picsart.com/653487ec-6999-4457-a8d6-2cce581bc572/447862892039201.png?to=crop&type=webp&r=1008x423&q=85)
