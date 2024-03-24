@@ -1,3 +1,3 @@
 <p align="center">
-  <img width="" height="" src="https://64.media.tumblr.com/a064c4ecf1fcb9a00b99fbd86dd2c3d8/aeeea54d70516d56-4c/s1280x1920/7464d84c82b0551bbd3283ef03dec8449aa5b7ca.pnj">
+  <img width=427"" height=427"" src="https://64.media.tumblr.com/8394176e56b97412d6ad90819af9a92b/2f1cc9b7ffe522c3-ed/s2048x3072/2cf4a8862ab1f96e786bd9561dfb4a115307dc22.pnj">
 </p>
